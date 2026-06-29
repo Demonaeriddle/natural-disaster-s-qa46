@@ -1,4 +1,4 @@
-#  
+#  premium Script for natural disaster survival offers the most advanced natural disaster survival Script, with instant win and auto-upgrade. Perfect
 
 
 
